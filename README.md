@@ -1,1 +1,1 @@
-https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.gismeteo.ru%2Fnews%2Fscience%2Frossijskie-uchenye-razrabotali-unikalnuju-kosmicheskuju-elektrostanciju%2F&psig=AOvVaw1HACMBpEDnQF4YEcMOAiTf&ust=1596363061262000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCPiS7Pvh-eoCFQAAAAAdAAAAABAD
+https://nnst1.gismeteo.ru/images/2020/03/shutterstock_1583118397-640x320.jpg
